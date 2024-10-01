@@ -1,5 +1,7 @@
 # 💫 About Me:
-Hi, I’m @badalrai21<br>👀 I’m interested in Front End and Blockchain.<br>🌱 I’m currently learning Blockchain from Metacrafters.<br>💞️ I’m looking to collaborate on high end projects.<br>📫 How to reach me : LinkedIn (@linkedin.com/in/badal-kumar-rai-a0151b259) Discord:<br>😄 Pronouns: NO2 (Nitric Acid)<br>⚡ Fun fact: ...
+Hi, I’m @badalrai21<br>👀 
+Chandigarh University Student <br> 
+I’m interested in Front End and Blockchain.<br>🌱 I’m currently learning Blockchain from Metacrafters.<br>💞️ I’m looking to collaborate on high end projects.<br>📫 How to reach me : LinkedIn (@linkedin.com/in/badal-kumar-rai-a0151b259) Discord:<br>😄 Pronouns: NO2 (Nitric Acid)<br>⚡ Fun fact: ...
 
 
 ## 🌐 Socials:
